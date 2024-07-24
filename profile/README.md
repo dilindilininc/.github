@@ -1,0 +1,1 @@
+![Typing SVG](https://readme-typing-svg.herokuapp.com/?font=Fira+Code&pause=1000&color=585152&random=false&width=435&lines=%D0%94%D0%B8%D0%BB%D0%B8%D0%BD%D1%8C-%D0%94%D0%B8%D0%BB%D0%B8%D0%BD%D1%8C...;Shitpost+Entertainment;Deep%20Dark%20Hacking;%D0%93%D0%BE%D0%B9%D0%B4%D0%B0....?)
